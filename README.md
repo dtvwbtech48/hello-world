@@ -1,2 +1,3 @@
 # hello-world
 Mineminemine
+HI, IM NEW HERE SO ANY HELO I CAN GET WOULD BE APORIVIATED. 
